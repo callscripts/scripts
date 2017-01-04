@@ -35,3 +35,9 @@ Consider sending a brief email about things which you value less but still care 
 ## What if I don't like your script?
 
 That's fine! Not every script is going to be a good fit for everyone and you don't have to follow a script to the letter. Rewrite it, come up with another, throw yours in pastebin or a Google doc and share it with your friends! When I have the suggestions up, feel free to pass it along to me to be included.
+
+## Who's writing these scripts anyway?
+
+Someone raised in the Republican party who happened to reread the Gospels while watching bombs fall on Baghdad and took a sharp turn Left past the Democrats into friendly company with the socialists, although I'm more Christocentric than Marxist and appreciate many religions and denominations who work for justice and good in the world (as well as the friendly atheists doing good!). So, someone who's been all over the political landscape. Not Libertarian, but I did marry one. However, he ended up right over here with me by being the kind, decent man I knew he was when I married him.
+
+I've done a fair amount of hobby writing, both non-fiction and fiction. I mostly understand and can at times emphathize with the other side(s) of the aisle (although I disagree on most points and would love for the Christians over there to reread the Bible through the lens of Jesus's teachings and consider Paul as secondary interpretation and join me!). I really, truly do not understand some of the party's current moves, such as not caring about Russian interference in the election. That one befuddles me as much as most people who grew up in the Party of Reagan but departed in the Bush II years.
